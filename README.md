@@ -1,5 +1,6 @@
 Backend Development role switch resume
 
-<img width="603" alt="image" src="https://github.com/AhamedAfq/Resumae/assets/57934160/b3217ff8-98ed-4973-9034-dc6ae374ac20">
+<img width="602" alt="image" src="https://github.com/AhamedAfq/Resumae/assets/57934160/b575efc3-9f3f-477b-bee2-a83acc661ac6">
+
 
 
